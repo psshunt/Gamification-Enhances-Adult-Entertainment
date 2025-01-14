@@ -8,7 +8,7 @@ Gamification involves incorporating elements like points, challenges, leaderboar
 ## How Gamification Enhances Adult Entertainment
 
 ### 1. Interactive Exploration
-- Platforms like **[Pornstar Scavenger Hunt](https://www.psshunt.com)** encourage users to discover content through challenges and quests.
+- Platforms like **Pornstar Scavenger Hunt** encourage users to discover content through challenges and quests.
 - Features like finding clips based on specific scenarios, performers, or positions turn exploration into an enjoyable activity.
 
 ### 2. Community Engagement
